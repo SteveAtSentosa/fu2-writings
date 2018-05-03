@@ -1,4 +1,4 @@
-# Starting Anew
+# Begning Anew
 
 325 pounds, that was my weight 6 years ago.  I am currently 50 pounds lighter.  I have further to go, and here will be ups and downs to be certain. However, after 10 years of working on this, I now feel comfortable that I have discovered, and continue to discover, approaches that are effective for me.  Maybe they can be effective for you as well.
 
