@@ -1,2 +1,0 @@
-#### Steve Notes
-I recall reading an article citing research showing a correlation between weight loss success and attaching some form of spiritual significance to the effort.  I personally am working on associating weight loss and health with the idea of building a vibrant life.  I journal many mornings, during which time  I endeavor to unplug from the demands of life for a few minutes and explore what finding health means to me.  This often comes with warm feelings.  This, to me is a spiritual connection of sorts that I work on nurturing.  This feels like poetry to me.
