@@ -1,6 +1,6 @@
 # Begning Anew
 
-325 pounds, that was my weight 6 years ago.  I am currently 50 pounds lighter.  I have further to go, and here will be ups and downs to be certain. However, after 10 years of working on this, I now feel comfortable that I have discovered, and continue to discover, approaches that are effective for me.  Maybe they can be effective for you as well.
+325 pounds, that was my weight 6 years ago.  I am currently 70 pounds lighter.  I have further to go, and here will be ups and downs to be certain. However, after 10 years of working on this, I now feel comfortable that I have discovered, and continue to discover, approaches that are effective for me.  Maybe they can be effective for you as well.
 
 Reaching and sustaining a healthy weight has been one of my great life challenges.   I have been thinking about, researching, trying, and asking for help for a long time now. I have tried Adkins, South Beech, Balance Point, Juicing, and several others.  I participated in a paid program at one of the nations leading obesity centers.   Did any of them work?  Over time, none of them worked.  This is the case for 92% of people that work on weight loss.
 
