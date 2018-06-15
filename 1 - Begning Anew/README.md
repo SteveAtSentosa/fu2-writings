@@ -6,7 +6,7 @@ Reaching and sustaining a healthy weight has been one of my great life challenge
 
 As an engineer, many of my attempts have been based on logic.  That did’t work.  It doesn’t work for most of us.  I believe that emotion trumps logic, and I believe that unhealthy eating is usually entangled with emotion.  Over time I came to believe that successful weight loss is  mostly about what is happening in the mind.  We all know the right things to do.  Being able to do them consistently and without abandoning them, how do you do that?
 
-In January of 2017, I started again.  This time I decided that I was going to listen to myself.  After all, I am the expert on me.  Instead of prescribed approaches, I wanted to find self-scribed approaches.  I journaled every morning, I explored what I was feeling when I engaged in healthy and unhealthy behaviors. I experimented with eating patterns, thinking patterns, and life patterns.  I kept and built upon what worked for me, I threw out what did not.  I lost 50 pounds.  You will be finding what works for you as well.  You may lose 50 pounds.  You may lose more.
+In January of 2017, I started again.  This time I decided that I was going to listen to myself.  After all, I am the expert on me.  Instead of prescribed approaches, I wanted to find self-scribed approaches.  I journaled every morning, I explored what I was feeling when I engaged in healthy and unhealthy behaviors. I experimented with eating patterns, thinking patterns, and life patterns.  I kept and built upon what worked for me, I threw out what did not.  I lost 50 pounds.  You will be finding what works for you as well.  You may lose 70 pounds.  You may lose more.
 
 **The fitUprising Mantras**
 
